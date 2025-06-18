@@ -1,1 +1,1 @@
-# seonmida.github.io
+# seonmi.github.io
